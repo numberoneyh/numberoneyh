@@ -9,9 +9,9 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **https://t.me/number_one_y_h**
+- 📫 How to reach me **https://t.me/number_one_y_h** 
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: +998973130423</h3>
 <p align="left">
 </p>
 
